@@ -81,7 +81,7 @@ The analysis results are outlined below:
 
 On the analysis, I recommend the following:
 
-- In the thrid quarter of the year, continue to invest in promotion and marketing of pizza.
+- In the third quarter of the year, continue to invest in promotion and marketing of pizza.
 - Keep focus on promote the Top 5 pizza during peak sales season to maximize the sales.
 - Keep up your productivity to fulfill all orders throughout the busiest days.
 
